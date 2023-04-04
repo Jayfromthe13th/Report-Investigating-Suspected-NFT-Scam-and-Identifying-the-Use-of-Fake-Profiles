@@ -1,4 +1,5 @@
 # Report-Investigating-Suspected-NFT-Scam-and-Identifying-the-Use-of-Fake-Profiles
+![Screen Shot 2023-04-04 at 4 25 38 PM](https://user-images.githubusercontent.com/83922342/229940152-fdb0149a-e0bd-40e1-a779-00be6dd17d2b.png)
 
 **Summary:**
 
